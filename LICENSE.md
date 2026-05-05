@@ -1,4 +1,4 @@
-
+grow a garden Script updated offers the most advanced grow a garden Script, with auto-heal and auto-sell. Perfect for dominating any match.
 
 
 
